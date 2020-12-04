@@ -1,2 +1,2 @@
 # fonology
-Refurbished Mobile sale, Old purchase and repair
+Refurbished Mobile sale, Old Phone Purchase and Repair
